@@ -19,3 +19,4 @@ Here are some bot images:
 
 
 ![image](https://media.discordapp.net/attachments/935050594572447793/955023988587913266/ipplooo.gif)
+![image](https://media.discordapp.net/attachments/941473141220323408/983792519399739502/Roblox.png?width=401&height=401)
